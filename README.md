@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NazarovNikita1
 - 👀 I’m interested in world peace
-- 🌱 I’m currently learning french
-- 💞️ I’m looking to collaborate on lv new collection
+- 🌱 I’m currently learning fl studios
+- 💞️ I’m looking to collaborate on ????????
 - 📫 How to reach me: @nyneznayu
 
 <!---
